@@ -1,1 +1,1 @@
-Oficial Solice Branding Guidelines for Internal and External use
+Official Solice Branding Guidelines for Internal and External use
